@@ -1,4 +1,4 @@
-# 
+# Atualizado reversal trading bot scripts para Mac OS | Inteligente reversal trading bot scripts para PC Windows. Com auditorias de segurança e processamento em lote — otimizado para máximo desempenho em cada plataforma.
 
 
 
